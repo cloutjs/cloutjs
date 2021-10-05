@@ -3,4 +3,4 @@
 
 security researcher / pentester /  developer 
 
-[Link to Google](https://www.google.com)
+Hired @ [BotheadNFT](https://twitter.com/BotHeadNFT)
