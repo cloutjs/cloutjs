@@ -3,4 +3,4 @@
 
 security researcher / pentester /  developer 
 
-Hired at [Bothead Collection](https://twitter.com/BotHeadNFT) & [Super TP Bros](https://twitter.com/supertpbros)
+Hired at [BotHead Collection](https://twitter.com/BotHeadNFT) & [Super TP Bros](https://twitter.com/supertpbros)
