@@ -3,3 +3,5 @@
 
 tools / scripts / cyber security / exploits <br>
 Hired at [BotHead Collection](https://twitter.com/BotHeadNFT) & [Super TP Bros](https://twitter.com/supertpbros)
+
+<u>My Discord Bots<u>
